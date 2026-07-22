@@ -1,1 +1,0 @@
-# Capacitaci-n_Desarrollador-Texto
